@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Therealsumballer
-- 👀 I’m interested in ... learning to make a good salart 
+- 👀 I’m interested in ... learning to make a good salary
 - 🌱 I’m currently learning ... python
 - 💞️ I’m looking to collaborate on ... money making projects
 - 📫 How to reach me ... through the grapevine
